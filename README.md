@@ -5,15 +5,5 @@ Hay finales y sus resoluciones (no borre las que hice mal, pero te vas a dar cue
 Avisenme cualquier cosa! <3
 3512722777
 
-  ,-.       _,---._ __  / \
- /  )    .-'       `./ /   \
-(  (   ,'            `/    /|
- \  `-"             \'\   / |
-  `.              ,  \ \ /  |
-   /`.          ,'-`----Y   |
-  (            ;        |   '
-  |  ,-.    ,-'         |  /
-  |  | (   |            | /
-  )  |  \  `.___________|/
-  `--'   `--'
+
   gaza libre
